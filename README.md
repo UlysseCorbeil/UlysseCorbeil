@@ -1,2 +1,2 @@
-### Hi there 👋
-![Hello there](https://media.giphy.com/media/26gYVFNGcvEWYtw9W/giphy.gif)
+### Hi there :white_circle:
+![](https://media.giphy.com/media/DIbzujHh2PCbm/giphy.gif)
