@@ -1,4 +1,4 @@
-### Hi there :white_circle:
+### Hey :white_circle:
 
 Previously Developer at **[Deux Huit Huit](https://deuxhuithuit.com/)**
 
