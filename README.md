@@ -1,5 +1,3 @@
-[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=UlysseCorbeil&count_private=true&theme=nord)](https://github.com/anuraghazra/github-readme-stats)
-
 ### Hey :white_circle:
 
 Previously Developer at **[Deux Huit Huit](https://deuxhuithuit.com/)**
