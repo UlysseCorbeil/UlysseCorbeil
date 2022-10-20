@@ -1,6 +1,6 @@
 ### Hey :white_circle:
 
-Previously Developer at **[Deux Huit Huit](https://deuxhuithuit.com/){:target="_blank"}**
+Previously Developer at [Deux Huit Huit](https://deuxhuithuit.com/){:target="_blank"}
 
 Analyst Programmer at **[ISIOS](https://isios.ca/){:target="_blank"}**
 
