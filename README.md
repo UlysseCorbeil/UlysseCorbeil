@@ -2,7 +2,7 @@
 
 Previously Developer at **[Deux Huit Huit](https://deuxhuithuit.com/)**
 
-Analyst Programmer at **[ISIOS](https://isios.ca/)**
+Previously Analyst Programmer at **[ISIOS](https://isios.ca/)**
 
 Club member at **[CEDILLE](https://cedille.club/)**
 
