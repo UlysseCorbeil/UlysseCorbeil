@@ -1,6 +1,6 @@
 ### Hey :white_circle:
 
-Software Developer at **[Sollum](https://sollumtechnologies.com/)**
+Previously Software Developer at **[Sollum](https://sollumtechnologies.com/)**
 
 Previously Developer at **[Deux Huit Huit](https://deuxhuithuit.com/)**
 
