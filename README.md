@@ -1,5 +1,7 @@
 ### Hey :white_circle:
 
+2025 Software Developer at **[StreamingFast](https://www.streamingfast.io/)**
+
 2023 Software Developer at **[Sollum](https://sollumtechnologies.com/)**
 
 2020 - 2023 Previously Analyst Programmer at **[ISIOS](https://isios.ca/)**
